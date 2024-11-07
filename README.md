@@ -1,2 +1,2 @@
-https://chatgpt.com/share/672adf7f-7a84-800a-8fae-73ae55ed91a3
-https://classroom.google.com/c/NTQ1MTQ3MDQ2ODc2/m/NjkxNzYwODQ1MDQ0/details
+https://chatgpt.com/share/672c256c-27dc-800a-ae3c-be4963dea29c
+https://chatgpt.com/share/672c2591-66f0-800a-b254-21eda4bc3182
